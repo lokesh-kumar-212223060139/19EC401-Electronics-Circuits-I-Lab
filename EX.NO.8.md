@@ -1,4 +1,6 @@
-<img width="852" height="671" alt="image" src="https://github.com/user-attachments/assets/aca0cd1f-5821-40cc-bc47-507cafe6872b" />
+## EXP NO 8
+
+<img width="826" height="625" alt="image" src="https://github.com/user-attachments/assets/e4072fa0-b0e8-480b-9ee8-f000e090843a" />
 
 <img width="806" height="458" alt="image" src="https://github.com/user-attachments/assets/ab1be097-b0ff-4e7e-9161-eb390e57b5ee" />
 
